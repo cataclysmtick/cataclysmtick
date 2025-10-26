@@ -2,4 +2,4 @@
   <br><div align="center">ok guys hi it's me!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!</div>
 <div align="center">dni weirdos :0(</div><br>
 <div align="center">funny stamps</div><br>
-  <div align="center"><img src="https://tenor.com/en-GB/view/stamp-cat-nyan-cat-gif-2297471861059414301.gif"></div><img src="https://tenor.com/en-GB/view/inanimate-insanity-paintbrush-paintbrush-inanimate-insanity-stamp-stamps-gif-315189088209512874.gif">
+<img src="https://tenor.com/en-GB/view/stamp-cat-nyan-cat-gif-2297471861059414301.gif"></div><img src="https://tenor.com/en-GB/view/inanimate-insanity-paintbrush-paintbrush-inanimate-insanity-stamp-stamps-gif-315189088209512874.gif"><img src="https://tenor.com/en-GB/view/nyan-cat-2010-stamp-gif-1893197477486065862.gif"><img src="https://tenor.com/en-GB/view/stamp-gif-4449161916957076958"<img src="https://tenor.com/en-GB/view/stamp-gif-7303546111506317856>
