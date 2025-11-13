@@ -1,6 +1,3 @@
-<div align="center"><img src="https://tenor.com/en-GB/view/deviantart-stamp-sparkledog-gif-14229348.gif"></div>
-<div align="center"><img src="file:///C:/Users/user/Downloads/uhm%20uhm%20this%20is%20some%20tohing%20I%20might%20download%20in%20a%20different%20account.png"></div>
-<div align="center">𝛣𝑎𝑖𝑡 𝑎𝑛𝑑 𝑠𝑤𝑖𝑡𝑐𝒉. 𝑂𝑛𝑒 𝑎𝑛𝑑 𝑎𝑙𝑙, 𝑓𝑢𝑙𝑙 𝑜𝑓 𝑆𝐻𝐼𝑇.</div>
-<div align="center"><img src="craig-tucker-banner-south-park
-.jpg"></div>
-<div align="center">hello my name is cataclysm tick and this is a wip</div>
+<div align="center"><img src="https://tenor.com/en-GB/view/freak-out-tweek-tweak-craig-tucker-south-park-s21e2-gif-20402260.gif"</div>
+<div align="center">yhi 6his looks so basic i swear itll be better in 2 days because of tebnors stupid long reviews and YES i can't wait that long.</div>
+<div align="center"><img src="https://tenor.com/en-GB/view/stamp-gif-3519522384843922649.gif"></div>
