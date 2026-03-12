@@ -3,7 +3,7 @@
 
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=cataclysmtick&color=FFD8DF&label=unicorns&abbreviated=true) </div> 
+  ![](https://komarev.com/ghpvc/?username=cataclysmtick&color=FCBF49&label=fat+and+ugly+and+really+really+stupid&abbreviated=true) </div> 
 
 
 
